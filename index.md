@@ -6,7 +6,7 @@
 
 **Club Volleyball**
 
-Tryouts for club are this [week!] (https://recreation.ucsd.edu/competitive-sports/teams/m-volleyball/)
+Tryouts for club are this [week!](https://recreation.ucsd.edu/competitive-sports/teams/m-volleyball/)
 
 **Working out**
 
